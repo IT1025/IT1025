@@ -1,4 +1,4 @@
-## Orian Pax / Date
+## Orian Pax / January 12th, 2021
 
 ## Executive Summary
 This is an example, please delete and create your own professional summary:
